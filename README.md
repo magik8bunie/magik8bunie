@@ -1,1 +1,1 @@
-![magic 8 ball](https://pin.it/18vitKsX4)
+![magic 8 ball](https://64.media.tumblr.com/9c9787580a195a90d304dcc05f84762f/a60cb3fcb89d365f-46/s1280x1920/9e8dc8a0448f3dc5fad94a9542ca2744773b7794.jpg)
